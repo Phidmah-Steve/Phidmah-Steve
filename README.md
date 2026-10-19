@@ -1,4 +1,4 @@
-# Hey, I'm Phidmah Steve 👋
+# Hey, I'm Phidmah-Steve 👋
 
 ### Cybersecurity Student | Aspiring Security Analyst
 
